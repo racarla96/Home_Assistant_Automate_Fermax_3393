@@ -1,0 +1,1 @@
+# Home_Assistant_Automate_Fermax_3393
